@@ -1,4 +1,4 @@
-# c-riculo
+# curiculo
 Qualidade Governança de Dados.
 Análise Estatística de Dados.
 Machine Learning.
