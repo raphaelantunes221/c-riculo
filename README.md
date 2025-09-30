@@ -25,3 +25,20 @@ Galvão Internacional
 Engenheiro de software sênior • Jul 2020–atual
 Instituto Pense S.A. • 2020–2021
 Engenheiro de software pleno • Jan 2018–Jul 2020
+*Trabalho em equipe;
+Liderança;
+Pensamento criativo;
+Resolução de problemas;
+Programação.
+Português - Nativo
+Inglês - Fluente
+Espanhol - Básico
+Vencedor do prêmio Faustino 2018 
+          na categoria Cloud Services.
+
+
+
+
+habilidades
+idiomas
+premiações
