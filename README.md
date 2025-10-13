@@ -3,10 +3,6 @@ Qualidade Governança de Dados.
 Análise Estatística de Dados.
 Machine Learning.
 Desenvolvi minha paixão por programação.
-Criador e mentor do primeiro clube de programação da universidade.
-Bacharelado em Engenharia de Software
-Universidade Pacheco e Lacerda • 2023–2025
-Engenheiro de software sênior com mais de 7 anos de experiência
  em desenvolvimento de códigos para negócios. Aumentei em
  60% a eficiência de programação do portal da Empresa Ícaro. 
 Fui indicado e vencedor do prêmio Faustino 2018 na categoria 
