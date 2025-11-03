@@ -43,3 +43,4 @@ raphael antunes
 
 trabalho na panificadora e a basteso a geladeira do mercado e ajudo os clientes a levar suas compras
 e fico empacotando as compras do caixa
+mas não gosto de trabalhar em mercados quero trabalhar em outro lugar mais intressãote e mais lucrativo
